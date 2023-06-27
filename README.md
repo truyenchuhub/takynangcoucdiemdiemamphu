@@ -19,5 +19,5 @@ Chư thiên vạn tộc: "Nhân tộc cũng không gì hơn cái này. . . Chạ
 
 Link truyện:
 
-[Ta Kỹ Năng Có Ức Điểm Điểm Âm Phủ](https://truyenchuhub.com/truyen/Toan-Cau-Cao-Vo-Ta-Ky-Nang-Co-c-diem-diem-m-Phu)
+[Ta Kỹ Năng Có Ức Điểm Điểm Âm Phủ](https://tutruyenchu.com/truyen/Toan-Cau-Cao-Vo-Ta-Ky-Nang-Co-c-diem-diem-m-Phu)
 </div>
